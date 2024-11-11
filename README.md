@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DokwaKZ
 - 👀 I’m interested in Knitting and fiction
 - 🌱 I’m currently in BSCS
-- 📫 How to reach me [me email: uswaimtiaz281@gmail.com]
+- 📫 How to reach me [my email: uswaimtiaz281@gmail.com]
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I enjoy photography and arts 
 
